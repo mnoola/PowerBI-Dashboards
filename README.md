@@ -42,6 +42,6 @@ If you encounter any issues or have questions, feel free to open an issue in thi
 
 ## 📬 Contact
 
-For queries or collaboration opportunities, feel free to reach out via email at [your-email@example.com].
+For queries or collaboration opportunities, feel free to reach out via email at just32713@gmail.com
 
 Happy visualizing! 🎉
